@@ -15,11 +15,9 @@ In a minimalistic and customer oriented way I solve problems on the daily for co
 **🎯 I will help your business grow.**
 
 Maybe ✍️ to me ? 
-
 [lukas@tommyart.cz](mailto:lukas@tommyart.cz)
 
 **Be sure and check my CV ! 👇**
-
 [cv-tech-lukas.pdf](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/b1e76c67-e074-4c4a-b3a4-b938a741b91c/cv-tech-lukas.pdf)
 
 My personal website is available at **[tommyart.cz](http://tommyart.cz).** 🥳
