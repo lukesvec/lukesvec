@@ -1,5 +1,4 @@
-# Luke.
-Hey there 👋. My name is Luke
+# Hey there 👋. My name is Luke.
 
 ### Full stack designer 🎨, developer 🛠 and military enthusiast 🔫
 
